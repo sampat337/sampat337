@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/sampat337?tab=repositories](https://github.com/sampat337?tab=repositories)
 
-- 📫 How to reach me **sampatprakash2005@gmail.com**
+- 📫 How to reach me **sampatprakash20@gmail.com**
 
 - ⚡ Fun fact **I am funny**
 
